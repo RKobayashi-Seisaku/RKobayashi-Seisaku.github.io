@@ -1,1 +1,0 @@
-# RKobayashi-Seisaku.github.io
